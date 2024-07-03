@@ -1,2 +1,2 @@
 Styles 
-![gallery-6](https://github.com/mustafaobaidd/ejsStyle-/assets/145908857/57e2ec35-c75a-43a6-a656-3f1c62cb4590)
+![12](https://github.com/mustafaobaidd/ejsStyle-/assets/145908857/b84756e5-67bb-42f4-a272-9b172f65590d)
